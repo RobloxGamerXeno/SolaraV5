@@ -2,7 +2,8 @@
 Ссылки для скачивания - 
 
 Telegram - https://t.me/solaraV5byfron
-Скачить отсюда! - 
+
+Скачать отсюда! -
 1) https://drive.google.com/file/d/1LYcVrBCSkX9sOHXk-w2IqaZTbxjo2tJz/view?usp=drive_link
 2) https://disk.yandex.ru/d/4n8654yXX0uqQA
 3) https://github.com/RobloxGamerXeno/SolaraV5
